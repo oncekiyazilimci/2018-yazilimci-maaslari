@@ -1,1 +1,1 @@
-# 2018-yazilimci-maaslari
+# YAZILIMCI MAAŞLARI ANKET SONUÇLARI / 2018
